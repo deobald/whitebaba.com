@@ -1,4 +1,4 @@
 # whitebaba.com
 My Personal Bible
 
-hi2u.
+hi2u. too.
